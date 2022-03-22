@@ -1,1 +1,1 @@
-https://ffflade.github.io/rsschool-cv/cv
+https://ffflade.github.io/rsschool-cv/
